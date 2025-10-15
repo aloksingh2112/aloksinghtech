@@ -22,6 +22,6 @@
 
 💬 Let’s Connect
 
- • GitHub -    https://github.com/aloksinghtech
+ • GitHub -    https://github.com/aloksingh2112
 
 “Art speaks where words are unable to explain — and technology helps it reach the world.” 🌍# aloksinghtech
